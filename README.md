@@ -1,5 +1,5 @@
 ### Hi there 👋, 
-## I'm meepoz-code.
+## I'm meepoz-code. ʕ•́ᴥ•̀ʔ 
 
 
 - 🔭 I’m currently working on meepoz chat...
